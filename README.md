@@ -1,1 +1,0 @@
-# treinamento-workspace-equipe
